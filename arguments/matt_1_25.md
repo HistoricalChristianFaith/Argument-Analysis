@@ -177,7 +177,7 @@ Which means... even if all 14 of the other New Testament passages explicitly req
 
 <h2>Who Makes The "heos" Argument?</h2>
 
-<h2>GotQuestions.org</h2>
+<h2>GotQuestions.org [2022]</h2>
 <blockquote>
 <h4><a href='https://www.gotquestions.org/Jesus-siblings.html'>Did Jesus have brothers and sisters (siblings)?</a></h4>
 <i>Some have taught that, due to the sacred nature of the virgin birth, Mary had no other children and remained a virgin throughout her life. However, Matthew 1:24–25 seems to counter that teaching and imply that Mary had other children: "When Joseph woke up, he did what the angel of the Lord had commanded him and took Mary home as his wife. But he did not consummate their marriage until she gave birth to a son. And he gave him the name Jesus." The key word that tells us that Mary had other children after Jesus is until. Until means "up to the time of." It implies that an action did occur after a prescribed pause. Matthew did not end the sentence by saying, "He did not consummate their marriage." He says, "He did not consummate their marriage until..." This wording indicates that the action (of consummating the marriage) did occur after the birth of Christ. Matthew also makes a point of telling us that Joseph "took Mary home as his wife." Matthew's readers would naturally conclude that Mary became Joseph's wife in every sense of the word. There is no scriptural evidence to support the assertion that Mary remained a perpetual virgin or that she had no other children. In fact, the Bible tells us the opposite.</i>
@@ -189,7 +189,7 @@ Which means... even if all 14 of the other New Testament passages explicitly req
 <hr>
 </details>
 
-<h2>Mike Winger</h2>
+<h2>Mike Winger [2015]</h2>
 <blockquote>
 <h4><a href='https://youtu.be/d1xZTPY98Oc'>Unbiblical stuff the Catholic Church teaches: Mary, Indulgences, Eucharist, Priests, 7 Sacraments, timestamp 57:23-59:37</a></h4>
 <i>Another one of the Marian dogmas is... the perpetual virginity of Mary - that she remained a virgin after the birth of Christ, both before, during, and after the birth of Jesus she was always a virgin... [Matthew 1:24-25] Then Joseph, being aroused from sleep, did as the angel of the Lord commanded him and took to him his wife and did not know her 'til she had brought forth her firstborn son and called his name Jesus. Now if the Bible taught the perpetual virginity of Mary it would have just said "he never knew her", but their teaching is no they got married but they never consumated the marriage, which is considered a wonderful thing in this scripture. It's a wonderful thing to consumate their marriage, it's a beautiful thing, this is one of the great things of marriage. 1 Corinthians 7 talks about how you're not supposed to stay celibate in marriage, that's not how it works, this is bad for marriage, you want to stay celibate then stay single.</i>
@@ -200,7 +200,7 @@ Which means... even if all 14 of the other New Testament passages explicitly req
 
 <h2>Who Makes The "heos hou" Argument?</h2>
 
-<h2>Eric Svendensen</h2>
+<h2>Eric Svendensen [2001]</h2>
 <blockquote>
 <h4>Who is My Mother? [<a href='https://repository.nwu.ac.za/bitstream/handle/10394/10309/Svendsen_E.pdf?sequence=1&isAllowed=y'>PHD Thesis</a>], [<a href='https://www.amazon.com/Who-My-Mother-Testament-Catholicism/dp/1879737450'>Book</a>]</h4>
 <i>Whatever meaning we finally adopt for [heos hou] in Matt 1:25 must be tempered by the act that this phrase never elsewhere has the meaning "until (and continuing)" in the NT... There are no clear examples of this usage ["until (and continuing)"] for at least a century and a half before Matthew wrote his Gospel, nor up to half a century afterwards... Moreover, when used with the negative, this phrase (at least so far as the NT is concerned) always means "not [main clause] until [subordinate clause], ater which [main clause] ensues." In light of this evidence, the most probable meaning for Matt 1:25 is, "Joseph did not have sexual relations with Mary until she gave birth to a firstborn son, after which sexual relations ensued."</i>
@@ -208,7 +208,7 @@ Which means... even if all 14 of the other New Testament passages explicitly req
 </blockquote>
 </details>
 
-<h2>James White</h2>
+<h2>James White [2021]</h2>
 <blockquote>
 <h4><a href='https://www.youtube.com/watch?v=GD7qi2X-Gas'>Deep Dive into the Perpetual Virginity of Mary, timestamp 17:00</a></h4>
 <i>The same thing is true of Matthew 1:25... Jerome made the same error that Roman Catholics make to this day and repeat over and over and over again there's all sorts of places where until doesn't mean that something happens afterwards. So but Joseph kept her a virgin until she gave birth to a son and he called his name Jesus - and so Micah didn't have children until her death, but she didn't have children afterward, blah blah blah. Standard stuff, again goes back to Jerome. But we've been pointing out for a long time now that in Matthew, his use of "heos hou" would not just "heos", but "heos hou", each time did indicate that after the point of the until is reached, that there was a change in the action thereafter. And so, syntatically this would be again the natural reading.</i>
