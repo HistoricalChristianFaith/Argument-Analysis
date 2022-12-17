@@ -11,3 +11,4 @@ In doing so, we hope the Father uses this work (however slightly) to help fulfil
 
 - [Matthew 1:25 disproves the Catholic doctrine of the perpetual virginity of Mary](arguments/matt_1_25.md)
 - [By 'blood of Abel to the blood of Zechariah', Jesus was referring to the 'Bookends' of the Canon](arguments/abel_to_zech.md)
+- [The Early Church Fathers do not quote from the Catholic Deuterocanonical books as Scripture](arguments/ecf_quote_deut.md)
