@@ -3,9 +3,7 @@
 
 We are not one. We are not united. And yet, truth should unite. 
 
-The sole purpose of this repository is to examine arguments that are contributing to the disunity of Christianity and see how those arguments hold up against the historical Christian faith. 
-
-No arguments will be proven right/wrong here - rather, our goal is merely to identify what the difficulties in each argument are. 
+The sole purpose of this repository is to examine arguments that are contributing to the disunity of Christianity and identify the difficulties in each argument.
 
 In doing so, we hope the Father uses this work (however slightly) to help fulfill Jesus' prayer.
 
