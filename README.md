@@ -1,5 +1,4 @@
-> <i>"I do not ask for these only, but also for those who will believe in me through their word, that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me."</i>
-> Jesus, praying to the Father in John 17:20-21
+> <i>"I do not ask for these only, but also for those who will believe in me through their word, that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me."</i> - Jesus, praying to the Father in John 17:20-21
 
 We are not one. We are not united. And yet, truth should unite. 
 
